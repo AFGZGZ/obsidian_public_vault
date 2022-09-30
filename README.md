@@ -1,0 +1,1 @@
+# obsidian_public_vault
